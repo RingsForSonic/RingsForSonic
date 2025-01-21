@@ -10,3 +10,4 @@ Main Account: RosesForAmy
 
 Please Do NOT interact with me if your a pedo, racist, sexist, etc. (I WILL BLOCK YOU!) And DO NOT copy my skins!
 
+![](https://media3.giphy.com/media/zr5rXvwyEbBNC/giphy.gif?cid=6c09b9528bpqmwho2711xrzyiwg6owdb90khjd8xioq9adbs&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
